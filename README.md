@@ -1,1 +1,1 @@
-👋 Hi, I’m @danielaaksi
+👋 Hi, I’m @danieljaksi
